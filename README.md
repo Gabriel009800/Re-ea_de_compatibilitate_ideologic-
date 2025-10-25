@@ -1,0 +1,1 @@
+# Re-ea_de_compatibilitate_ideologic-
